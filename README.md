@@ -5,4 +5,4 @@ i am kanchan kapri .
 🌱 I’m currently learning on core subjects.
 👯 I’m looking to collaborate on projects .. 
 🤔 I’m looking for help with projects, academics, and the coder world.
-💬 Ask me about any projects that i have maden.
+💬 Ask me about any projects that i have made.
